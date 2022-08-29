@@ -1,1 +1,0 @@
-# grigoriypshenishnyk.github.io
